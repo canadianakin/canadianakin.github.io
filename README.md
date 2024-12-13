@@ -1,1 +1,0 @@
-# canadianakin.github.io
